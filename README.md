@@ -1,0 +1,1 @@
+# aerit_technical_task
